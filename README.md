@@ -1,2 +1,0 @@
-# synappticsolutions
-Synapptic Solutions
